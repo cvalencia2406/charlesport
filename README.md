@@ -1,5 +1,9 @@
 # 🤘WELCOME TO MY PORTFOLIO
+---
+
+
 ## MY NAME IS CHARLES ADRIANNE D. VALENCIA
+<img src="02e625ec-392d-45f9-8c8c-49c44b5d7ec0.jfif" alt="image" width="200" height="200">
 **:rage2:About me**\
 I am a 18 years old boy who lives in Angeles City, a guy that loves family gatherings, who loves his family the most. I also play sports and its Basketball. I am the type of guy who wonder through things, my intrusive thoughts always wins.\
 \
