@@ -34,6 +34,18 @@ I am a 18 years old boy who lives in Angeles City, a guy that loves family gathe
 
 ## Contacts
 [FACEBOOK]https://www.facebook.com/charlesadrianne.valencia.73
+## Projects
+**MIDTERM PAIRED TASK 1** [View Project](https://drive.google.com/file/d/1UaM8xqK6FtHg-cFYr2J4K4UKpWXIJVN7/view)\
+**MIDTERM LAB TASK 1** [View Project](https://drive.google.com/file/d/1fpXNNeoRQeXpzJ0oW20iRsCx7BrZmI3t/view)\
+**MIDTERM LAB TASK 2** [View Project](https://drive.google.com/file/d/1JkJnvB51Hb4qKftsydH0y-lBGb0gRKC2/view)\
+**MIDTERM LAB TASK 3** [View Project](https://drive.google.com/file/d/1nlg6UdpnDsYK5RKM8-seBHJDF6Hsfs6X/view)\
+**MIDTERM LAB TASK 4** [View Project](https://drive.google.com/file/d/1N7xGRatULrU6NM8hgRotZ8OdubzSicxe/view)\
+**MIDTERM LAB TASK 5** [View Project](https://drive.google.com/file/d/1LaOMMTTAsQx16Dwn329ntLygSKXG0xUp/view)\
+**MIDTERM LAB TASK 6** [View Project](https://drive.google.com/file/d/1xnkMssdNVtDBDHrSxxWj21ebo5mLij-l/view)
+
+
+
+
   
  
  
