@@ -1,3 +1,7 @@
+---
+layout: default
+---
+
 # 🤘WELCOME TO MY PORTFOLIO
 ---
 
