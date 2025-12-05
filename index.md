@@ -37,7 +37,7 @@ I am a 18 years old boy who lives in Angeles City, a guy that loves family gathe
 * I eat when I'm bored
 
 ## Contacts
-[FACEBOOK]https://www.facebook.com/charlesadrianne.valencia.73
+**FACEBOOK** [View Profile](https://www.facebook.com/charlesadrianne.valencia.73)
 ## Projects
 **MIDTERM PAIRED TASK 1** [View Project](https://drive.google.com/file/d/1UaM8xqK6FtHg-cFYr2J4K4UKpWXIJVN7/view)\
 **MIDTERM LAB TASK 1** [View Project](https://drive.google.com/file/d/1fpXNNeoRQeXpzJ0oW20iRsCx7BrZmI3t/view)\
